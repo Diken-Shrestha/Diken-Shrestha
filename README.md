@@ -2,7 +2,7 @@
 - 👀 I’m interested in Soccer
 - 🌱 I’m currently learning Data analytics
 - 💞️ I’m looking to collaborate on data analytics or sports or finance project
-- 📫 How to reach me 
+- 📫 How to reach me: dikenshrestha13@gmail.com 
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: 
 
